@@ -34,8 +34,5 @@ jul 2003- jun 2004
 * IT TODAY 2017
 * Open House IPMM 54
 
-## Keahlian
-* Membaca Puisi
-
 ## Hobi
 Nonton K-pop, Main Game, Renang
