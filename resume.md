@@ -37,6 +37,5 @@ jul 2003- jun 2004
 ## Keahlian
 * Membaca Puisi
 
-
 ## Hobi
 Nonton K-pop, Main Game, Renang
